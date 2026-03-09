@@ -1,7 +1,7 @@
 <img src="https://i.imgur.com/Pu7df10.png" alt="82"/>
 <img src="https://wilardo.crd.co/assets/images/gallery31/4fb14729.png?v=ca679d09" alt="82"/>
 
-[Rentry](https://rentry.co/epilogueboyfriend) | [strawpage](https://partyyybeetle.straw.page/) | [Ata](https://moonlitflowerrs.atabook.org/)
+[Rentry](https://rentry.co/epilogueboyfriend) | [strawpage](https://partyyybeetle.straw.page/) | [Ata](https://queerslop.atabook.org/)
 
 <sup> c+h ok!! Don't take inspiration from / copy my pony's design exactly, okay? ok. </sup>
 <sup>Thank you for reading!!</sup>
