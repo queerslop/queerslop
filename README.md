@@ -1,7 +1,7 @@
 <img src="https://i.imgur.com/3xMso0h.png" alt="82"/>
 <img src="https://wilardo.crd.co/assets/images/gallery31/4fb14729.png?v=ca679d09" alt="82"/>
 
-[Strawpage.ᐟ.ᐟ](https://omegamaie.straw.page) ⸝⸝ <img src="https://wilardo.crd.co/assets/images/gallery04/b22c1aa5.gif?v=f1379c3e" alt="15"/> ⸝⸝ [Ata.ᐟ.ᐟ](https://queerslop.atabook.org/)
+[Strawpage.ᐟ.ᐟ](https://omegamale.straw.page) ⸝⸝ <img src="https://wilardo.crd.co/assets/images/gallery04/b22c1aa5.gif?v=f1379c3e" alt="15"/> ⸝⸝ [Ata.ᐟ.ᐟ](https://queerslop.atabook.org/)
 
 <sup> c+h ok 𖹭.ᐟ Don't take inspiration from / copy my pony's design exactly, okay? ok. </sup>
 <sup>Thank you for reading.ᐟ.ᐟ ദ്ദി◝ ⩊ ◜.ᐟ </sup>
